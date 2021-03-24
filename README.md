@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @alistairkinghorn
+- 👀 I’m interested in learning to programme
+- 🌱 I’m currently studying Engineering at university
+- 📫 Reach me by email: alistairkinghorn@icloud.com
